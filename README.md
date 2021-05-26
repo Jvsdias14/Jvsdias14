@@ -6,6 +6,6 @@ Moro atualmente em Resende, RJ.
 
 Estudo no SESI SENAI Resende onde Curso de **Desenvolvivemento de Sistemas.**
 
-Pretendo seguir na área de **Programação**, mas ainda não sei especificamente qual faculdade fazer
+Pretendo seguir na área de **Programação**, mas ainda não sei especificamente qual faculdade fazer.
 
 Instagram : https://www.instagram.com/jvsdiaxx/
