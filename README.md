@@ -8,4 +8,6 @@ Estudo no Firjan SENAI SESI, onde Curso de **Desenvolvivemento de Sistemas.**
 
 Pretendo seguir na área de **Programação**, mas ainda não sei especificamente qual faculdade fazer.
 
+😁
+
 Instagram : https://www.instagram.com/jvsdiaxx/
