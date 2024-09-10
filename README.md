@@ -1,11 +1,11 @@
 # João Victor S. Dias 
 
-Meu nome é **João Victor** e tenho *18 anos*, 14/03/2005.
+Meu nome é **João Victor** e tenho *19 anos*, 14/03/2005.
 
 Moro atualmente em Resende, RJ. 
 
-Estudo no Firjan SENAI SESI, onde Curso de **Desenvolvivemento de Sistemas.**
+Curso técnico de **Desenvolvivemento de Sistemas** -> Firjan SENAI SESI
 
-Pretendo seguir na área de **Programação**, mas ainda não sei especificamente qual faculdade fazer.
+Cursando **Engenharia de Software** -> Associação Educacional Dom Bosco 
 
 Instagram : https://www.instagram.com/jvsdiaxx/
